@@ -1,2 +1,2 @@
 # software-repository
-just my software repository, so i can download my apps faster. nothing interesting
+im developing it rn, ill upload website later
