@@ -1,2 +1,2 @@
 # software-repository
-im developing it rn, ill upload website later
+blauefeuerr's software repository for personal and public uses! request your ideas what shoiuld i add!
